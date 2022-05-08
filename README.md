@@ -1,0 +1,5 @@
+- 👋 Hi, I’m ninja864363
+- 👀 I’m interested in coding, and Roblox game development!
+- 🌱 I’m currently learning Lua.
+- 💞️ I’m looking to collaborate on Roblox, It would be good experience to go collaborations.
+- 📫 How to reach me Roblox, ninja864363 or Discord, ninja864363#2899
